@@ -1,2 +1,2 @@
-# sethstrugglingcoder.github.io
+# sethyup.github.io
 nice
